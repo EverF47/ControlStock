@@ -1,0 +1,6 @@
+![image](https://github.com/EverF47/ControlStock/assets/156487276/2f0d45c7-e431-4c55-90da-ee77fe19a9dd)
+![image](https://github.com/EverF47/ControlStock/assets/156487276/392f5379-3a1b-42aa-9805-117191e3b415)
+![image](https://github.com/EverF47/ControlStock/assets/156487276/d61fdf0a-0f14-49c8-adec-2d039015bb9e)
+![image](https://github.com/EverF47/ControlStock/assets/156487276/484b5088-eadb-48a9-9fd1-044a995a5bc4)
+![image](https://github.com/EverF47/ControlStock/assets/156487276/6896427c-e8d0-419b-a9f0-43afc10c224d)
+![image](https://github.com/EverF47/ControlStock/assets/156487276/f1589326-d1b7-4930-9c91-b5fce59ddc84)
